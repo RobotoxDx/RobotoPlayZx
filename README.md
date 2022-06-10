@@ -2,7 +2,7 @@
 - 👀 I’m interested in Discord Stuff!
 - 🌱 I’m currently learning nothing xD
 - 💞️ I’m looking to collaborate on nothing xd
-- 📫 How to reach me https://discord.gg/inc and https://discord.gg/spyop
+- 📫 How to reach me https://discord.gg/kitcat
 - I am human 
 
 <!---
